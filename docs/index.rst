@@ -7,7 +7,7 @@ How To Login Pogo Games Account?: Your Ultimate Guide
    :alt: My Project Logo
    :width: 400px
    :align: center
-   :target: https://aclogportal.com/
+   :target: https://pogo.officialredir.com
 __________________________
 
 In the vast world of online gaming, Pogo Games stands out as one of the most beloved platforms for casual and social gaming enthusiasts. Pogo Games, offered by Electronic Arts (EA), has a wide array of games ranging from card and board games to puzzles, arcade classics, and new-age social games. Whether you’re looking to unwind after a long day or compete against friends, a Pogo games login account is your gateway to an immersive gaming experience.
